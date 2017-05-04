@@ -1,5 +1,7 @@
 # Je ne vote pas et je ne suis pas ton bouc émissaire
 
+*Jeudi 4 mai 2017*
+
 Je ne vote pas. Je ne voterai pas le 7 mai. Je n'ai pas voté non plus au
 premier tour. Pas plus qu'aux élections municipales, cantonales ou législatives
 précédentes. Ni à la présidentielle de 2012. J'ai commencé a voté de moins en moins
