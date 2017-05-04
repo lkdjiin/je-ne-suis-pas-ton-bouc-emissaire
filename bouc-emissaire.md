@@ -7,7 +7,7 @@ en 2002. Je ne vote plus du tout depuis 10 ans.  Je suis abstentionniste et je
 ne te donne pas le droit de faire de moi ton bouc émissaire. Trouve toi
 quelqu'un d'autre pour te défouler.
 
-Tu est persuadé que c'est ma faute, moi l'abstentionniste, si Lepen est au
+Tu es persuadé que c'est ma faute, moi l'abstentionniste, si Lepen est au
 second tour de cette présidentielle. Tu te fais peur avec l'idée d'une
 présidence Lepen. Si jamais ça se produisait tu sais que ça serait ma faute,
 puisque je n'aurai pas voté.  Lepen présidente, ça sera pas pour cette fois. Et
@@ -42,7 +42,7 @@ dans notre système politique actuel, il y a de nombreuses personnes politiques 
 ne devrait plus voir depuis 10, 15, 20 ans.
 
 La deuxième raison : **le cynisme des médias**. Regarde le nombre incalculable des unes de
-journaux vitupérant contre l'islam. Je suis athée. J'ai
+journaux vitupérant contre l'islam ces dernières années. Je suis athée. J'ai
 les religions en horreur. Je les trouvent dangereuses pour l'être humain. Mais je suis
 obligé de constater que depuis de nombreuses années la presse française est mono maniaque
 dans le choix de ses cibles. Quant à la télévision, avec Zemour et consort le
@@ -101,7 +101,7 @@ ces causes ? Évidemment non. Alors ne cherche pas à me contraindre.
 
 Parce que toi, tu sais quel bulletin les millions d'abstentionnistes
 glisseraient dans l'urne *si ils étaient contraints à voter* ?  Ma seule
-certitude c'est que je voterai nul.  Quant aux autres, j'en ai pas la moindre
+certitude c'est que dans ce cas là je voterai nul.  Quant aux autres, j'en ai pas la moindre
 idée.  S'ils votaient principalement Macron, tu aurais raison. Mais s'ils
 votaient principalement blanc, tu aurais tort. Tu aurais seulement contraint
 des personnes à faire un truc qu'elles ne veulent pas faire, pour rien. Et bien sûr ça
